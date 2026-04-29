@@ -1,1 +1,1 @@
-# DESI - Digital Economny and Societ Index
+# DESI - Digital Economy and Societ Index
